@@ -1,2 +1,14 @@
-# europese-economische-gemeenschap
-1990-2021
+------------------------------------
+| europese-economische-gemeenschap |
+------------------------------------
+
+# participatiewet
+https://nl.wikipedia.org/wiki/Participatiewet
+
+# neues volk
+https://en.wikipedia.org/wiki/Neues_Volk
+
+# nederland
+https://nl.wikipedia.org/wiki/Nederland
+
+nederland ® 1990-2021
